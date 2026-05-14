@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with ftx trading bot custom Strategy | high-frequency & cross-margin, the #1 ftx trading bot. Includes high-frequency and cross-margin for a smoother and more
 
 
 
